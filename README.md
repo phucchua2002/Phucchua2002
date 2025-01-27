@@ -1,4 +1,5 @@
-## Hi there 👋
+## Hi there 👋![1000000566](https://github.com/user-attachments/assets/6418bce6-7371-446d-af93-7a79414a3dde)
+
 
 <!--
 **phucchua2002/Phucchua2002** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
